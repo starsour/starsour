@@ -1,10 +1,3 @@
-
-![](https://media.discordapp.net/attachments/1222585947795751034/1223389852330885231/GMP_U2F2ZUdIMDE.gif?ex=6619ad96&is=66073896&hm=92c4c21850cd4ae0884a079243b245bb8a6c0a7961c2f34ec566714ae21440e0&=&width=1037&height=592)
-
-
--
-
-
 ![](https://media.discordapp.net/attachments/1207400681678311458/1210231141878202378/image.png?ex=660eb895&is=65fc4395&hm=b5fe2271038f2bcefb299b648cbaf5c8873dd970f3a0e67f3a4034a272cd26fa&format=webp&quality=lossless&width=317&height=385&)
 
 
