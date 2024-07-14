@@ -1,23 +1,13 @@
-![](https://files.catbox.moe/s0qfj4.gif)
-
-
-choir
+<p align=center> <a href="https://rentry.co/agape">rntry 1</a> ⠀⠀✦⠀⠀ <a href="https://rentry.co/shouyou">rntry 2</a> ⠀⠀✦⠀⠀ <a href="https://tsukasa.atabook.org/">atabook</a> ⠀⠀✦⠀⠀ <a href="https://sourstar.straw.page/">strawpage</a>
+<p align=center> (kill me ffs)
 
 
 
-![](https://files.catbox.moe/i5tr2v.webp)
+<p>  </p>
 
+<p align=center> <img src=https://komarev.com/ghpvc/?username=starsour&color=eac0ce&style=flat-square&label=like+and+subscribe&abbreviated=true>
+  
+<p>  </p>
 
-cancel @acheswan
-
-
--
-
-
-**wxs jail tycoon :3**
-
-
-![](https://files.catbox.moe/8j8hpd.webp) ![](https://files.catbox.moe/z4zocd.webp) 
-
-![](https://files.catbox.moe/lkmsum.webp)
-
+<p align=center> <img src="https://files.catbox.moe/nfo4md.png" alt="Trulli" >
+<p align=center> me and my <a href="https://rentry.co/carouselnightdevs">gang</a>
