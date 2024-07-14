@@ -9,6 +9,6 @@
   
 <p>  </p>
 
-<p align=center> <img src="https://files.catbox.moe/nfo4md.png" alt="Trulli" >
+<p align=center> <img src="https://files.catbox.moe/yaxaht.gif" alt="Trulli" >
 <p align=center> me and my <a href="https://rentry.co/carouselnightdevs">gang</a>
 <p align=center> <a href="https://www.youtube.com/watch?v=vdVnnMOTe3Q">(our song fr)</a>
