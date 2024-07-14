@@ -1,4 +1,4 @@
-<p align=center> <a href="https://rentry.co/agape">rntry 1</a> ⠀⠀✦⠀⠀ <a href="https://rentry.co/shouyou">rntry 2</a> ⠀⠀✦⠀⠀ <a href="https://tsukasa.atabook.org/">atabook</a> ⠀⠀✦⠀⠀ <a href="https://sourstar.straw.page/">strawpage</a>
+<p align=center> <a href="https://rentry.co/agape">rentry 1</a> ⠀⠀✦⠀⠀ <a href="https://rentry.co/shouyou">rentry 2</a> ⠀⠀✦⠀⠀ <a href="https://tsukasa.atabook.org/">atabook</a> ⠀⠀✦⠀⠀ <a href="https://sourstar.straw.page/">strawpage</a>
 <p align=center> (kill me ffs)
 
 
