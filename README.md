@@ -12,3 +12,8 @@
 <p align=center> <img src="https://files.catbox.moe/yaxaht.gif" alt="Trulli" >
 <p align=center> me and my <a href="https://rentry.co/carouselnightdevs">gang</a>
 <p align=center> <a href="https://www.youtube.com/watch?v=vdVnnMOTe3Q">(our song fr)</a>
+
+<p>  </p>
+
+<p align=center> <a href="https://x.com/minosillies"><img src="https://files.catbox.moe/zlu0xk.png"></a>
+<p align=center> <a href="https://github.com/tsvkasa">tsvkasa</a> ⠀✦⠀ <a href="https://github.com/punpunism">punpunism</a> ⠀✦⠀ <a href="https://github.com/Iu-guang">Iu-guang</a> ⠀✦⠀ <a href="https://github.com/5th-child">5th-child</a>
