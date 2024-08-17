@@ -1,5 +1,4 @@
 <p align=center> <a href="https://rentry.co/shouyou">rentry</a> ⠀⠀✦⠀⠀ <a href="https://rentry.co/keo">other rentries</a> ⠀⠀✦⠀⠀ <a href="https://tsukasa.atabook.org/">atabook</a> ⠀⠀✦⠀⠀ <a href="https://sourstar.straw.page/">strawpage</a>
-<p align=center> (kill me ffs)
 
 
 
@@ -15,5 +14,5 @@
 
 <p>  </p>
 
-<p align=center> <a href="https://x.com/minosillies"><img src="https://files.catbox.moe/zlu0xk.png"></a>
-<p align=center> <a href="https://github.com/tsvkasa">tsvkasa</a> ⠀✦⠀ <a href="https://github.com/punpunism">punpunism</a> ⠀✦⠀ <a href="https://github.com/Iu-guang">Iu-guang</a> ⠀✦⠀ <a href="https://github.com/5th-child">5th-child</a>
+<p align=center> <a href="https://rentry.co/kys-trio"><img src="https://files.catbox.moe/m26fpr.png"></a>
+<p align=center> <img src="https://files.catbox.moe/27fbrg.jpg" alt="Trulli" >
