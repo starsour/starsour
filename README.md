@@ -6,5 +6,5 @@
 
 <p align=center> <a href="https://rentry.co/kys-trio"><img src="https://files.catbox.moe/wtl4ep.webp"></a>
 
-<p align=center> <a href="https://tsukasa.atabook.org/">atabook</a> ⠀⠀✦⠀⠀ <a href="https://sourstar.straw.page/">strawpage</a>
+<p align=center> <a href="https://rentry.co/kys-trio">kys trio</a> ⠀⠀✦⠀⠀ <a href="https://rentry.co/carouselnightdevs">cn dev</a>
 
