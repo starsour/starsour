@@ -23,4 +23,6 @@ roblox roblox + seven <a href="https://github.com/spawnel">@spawnel</a> <a href=
 
 <br>
 
+${\textsf{\color{#313550}art credit to @wingedstag on twitter}}$
+
 <img src="https://file.garden/aZh9TOZ2KVa1kjeH/spyglass.png" width="50" align="right">
