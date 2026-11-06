@@ -4,7 +4,7 @@
 <img src="https://komarev.com/ghpvc/?username=starsour&color=313550&style=pixel&label=">
 <!-- your counter is hidden, it still counts views though -->
 
-<p align="left"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Silkscreen&weight=300&size=11&pause=1000&color=CFD184&width=435&lines=PestoPasta2009+was+blown+up+by+ParrotX2" alt="Typing SVG" /></a> </p>
+<p align="left"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=silkscreen&weight=300&size=11&pause=1000&color=CFD184&width=435&lines=PestoPasta2009+was+blown+up+by+ParrotX2" alt="Typing SVG" /></a> </p>
 
 <a href="https://rentry.co/x2"><img src="https://file.garden/aZh9TOZ2KVa1kjeH/rentry.png" width="75"></a> ⠀ ⠀⠀ <a href="https://vgen.co/ikkeos"><img src="https://file.garden/aZh9TOZ2KVa1kjeH/vgen.png" width="50"></a> ⠀ ⠀⠀ <a href="https://rentry.co/keo"><img src="https://file.garden/aZh9TOZ2KVa1kjeH/extra.png" width="50"></a>
 <!-- here are your urls -->
